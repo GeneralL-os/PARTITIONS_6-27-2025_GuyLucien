@@ -1,0 +1,1 @@
+# PARTITIONS_6-27-2025_GuyLucien
